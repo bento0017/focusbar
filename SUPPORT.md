@@ -4,7 +4,7 @@
 
 If you have questions, feedback, or need help with FocusBar:
 
-- **Email:** focusbar.app@gmail.com
+- **Email:** wwbento9898@gmail.com
 
 ## FAQ
 
