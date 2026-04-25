@@ -46,4 +46,4 @@ If this policy changes, we will update it here with a revised date. Continued us
 
 ## Contact
 
-Questions about this policy? Reach us at: focusbar.app@gmail.com
+Questions about this policy? Reach us at: wwbento9898@gmail.com
